@@ -2,8 +2,8 @@
 鸣佐党入
 各位鸣佐同好你们好，草料二维码连接已被不明人士举报，所以现在改为github上共享资源，请各位自行遵守规定，不要乱举报谢谢。
 鸣佐本下载连接：https://johnbulte86.tonidoid.com/urlekbkl5
-解压看漫画神器下载连接：https://johnbulte86.tonidoid.com/urluab3iz
-
+解压看漫画神器下载连接：https：// johnbulte86.tonidoid.com/urluab3iz
+您的解压密码是“NasuSasu10100723”，区分大小写。
 
 由于很多人并没有看到说明我再说明一下，由于是本机服务器下载速度可能会很慢等不了的请不要点，本文件压缩包大小为2.25G，流量党请不要点。请确保压缩包的完整性，否则打开会显示压缩包错误。
 
